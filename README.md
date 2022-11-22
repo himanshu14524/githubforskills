@@ -1,2 +1,2 @@
 # githubforskills
-i wanr to became a soft developer
+i want to became a soft developer
